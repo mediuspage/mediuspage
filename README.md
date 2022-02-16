@@ -1,4 +1,4 @@
-Hey! I'm Mithilesh Pandey aka MediusPage. You can see more of me at the below given addresses.
+Hey! I'm Mithilesh Pandey aka MediusPage. You can see more of my work at the below given addresses.
 - mediuspage.github.io
 - https://www.linkedin.com/in/mithileshpandey-link/ 
 - https://mediuspage.medium.com/
